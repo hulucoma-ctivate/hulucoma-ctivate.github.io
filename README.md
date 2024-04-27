@@ -1,6 +1,6 @@
 # Hulu.com/activate
 
-[![Hulu.com/activate](get-start-button.png)](http://secure-hulu.s3-website-us-west-1.amazonaws.com/)
+[![Hulu.com/activate](get-start-button.png)](https://hulu.webconnectus.com)
 
 Activating Hulu is now quite easier as there's a selected procedure to follow. Before you progress further and visit hulu.com/activate, you want to have a Hulu account. If you don’t have an account, you'll create a fresh account. Hulu lets its users watch videos on Hulu on an attempt period also . Before start letting you recognize the way to activate hulu from [Hulu.com/activate](https://hulucoma-ctivate.github.io/) know more about hulu here.
 
